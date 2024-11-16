@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sidWrld
+- 👀 I’m interested in CODING
+- 🌱 I’m currently learning CODING
+- 💞️ I’m looking to collaborate on CODES
+- 📫 How to reach me CODES
+- 😄 Pronouns: COD/HER
+- ⚡ Fun fact: CODES!
